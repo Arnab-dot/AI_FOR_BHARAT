@@ -475,7 +475,7 @@ Bandhan AI supports key Digital India initiatives:
 
 <div align="center">
 
-**Made with ❤️ for Indian families, by the Bandhan AI team**
+**Made with ❤️ for Indian families, by Bandhan AI**
 
 ### *बंधन - Connecting hearts across distances, preserving bonds across generations*
 
